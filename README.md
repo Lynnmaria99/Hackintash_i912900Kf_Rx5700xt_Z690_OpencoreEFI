@@ -1,0 +1,1 @@
+# Hackintash_i912900Kf_Rx5700xt_Z690_OpencoreEFI
